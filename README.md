@@ -1,1 +1,1 @@
-<img src="https://pic.nximg.cn/file/20230517/11949215_143004845103_2.jpg" alt="描述" width="50%" height="auto">
+<img src="https://img95.699pic.com/photo/60062/2518.jpg_wh860.jpg" width="50%" height="auto">
